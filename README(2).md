@@ -1,0 +1,1 @@
+This consists of a spontantaneous journal entry of this git hub user 
